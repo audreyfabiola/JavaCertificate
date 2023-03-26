@@ -1,4 +1,4 @@
-## OOP Forum Session 6
+## 📜 HackerRank and Great Learning Certificates
 
 #### Clarissa Audrey Fabiola Kusnadi - 2602118490 - L2AC
 
