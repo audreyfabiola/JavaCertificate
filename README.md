@@ -1,4 +1,4 @@
-## 📜 HackerRank and Great Learning Certificates
+## HackerRank and Great Learning Certificates
 
 #### Clarissa Audrey Fabiola Kusnadi - 2602118490 - L2AC
 
